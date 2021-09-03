@@ -33,7 +33,7 @@ asked to adopt the following mission statement.
 > ongoing DEI role in the program per year, that will be tracked on the
 > PSPG website.
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+\Sham Rampersaud_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-Signature Date
+09/03/2021
